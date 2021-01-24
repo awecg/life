@@ -1,2 +1,2 @@
-
+cheesy preachment for life change
 + 除泡妞和挣钱外的任何事情都不值得去做。 财色动人心
