@@ -3,7 +3,9 @@
   + unanimous [jʊ'nænɪməs] 意见一致的
 
 ## c
++ consensus 共识 there's a strong consensus with a vocal minority
 + contention 争论；争夺 have been eliminated from championship contention
+
 ## f
 + flagrant ['fleɪɡrənt] Ref puts some sass in this flagrant foul explanation
 
@@ -13,8 +15,12 @@
 ## i
 + impersonate 冒充；模仿
 
+## m
++ minority [maɪ'nɔrəti]
+
 ## pathetic
 + pathetic [pə'θetɪk]  可怜无助的，可悲的
++ prophet ['prɑfɪt] He's revered as a prophet on XXX
 
 
 ## sass
