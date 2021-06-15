@@ -6,6 +6,7 @@
 + bait 诱饵
 
 ## c
++ catastrophe [kəˈtæstrəfi]
 + chink 眯眯眼，中国佬
 + consensus 共识 there's a strong consensus with a vocal minority
 + contention 争论；争夺 have been eliminated from championship contention
@@ -22,6 +23,11 @@
 ## j
 + jumbotron 大屏幕
 
+## k
+
+## l
++ layup
+
 ## m
 + majority [mə'dʒɔrəti]
 + minority [maɪ'nɔrəti]
@@ -32,6 +38,7 @@
 
 ## pathetic
 + pathetic [pə'θetɪk]  可怜无助的，可悲的
++ predator [ˈpredətə(r)] 
 + prophet ['prɑfɪt] He's revered as a prophet on XXX
 
 
