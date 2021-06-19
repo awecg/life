@@ -11,6 +11,9 @@
 + consensus 共识 there's a strong consensus with a vocal minority
 + contention 争论；争夺 have been eliminated from championship contention
 
+## d
++ ditch  Why would you ditch that trainer in the first place?
+
 ## f
 + flagrant ['fleɪɡrənt] Ref puts some sass in this flagrant foul explanation
 
@@ -46,6 +49,6 @@
 + sass 脏话
 + scour 搜查 We scoured the area for somewhere to pitch our tent.
 + spray 喷洒 "Fuck Chinks" was spray painted on a food truck.
-
++ stingy 吝啬的
 ## v
 + vandalize 故意损坏 food truck was recently vandalized
