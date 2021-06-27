@@ -6,3 +6,6 @@
   + I’ve been practicing a lot and I actually challenged myself to approach at least one stranger every day.
   + Humans like to hang out with other humans who understand them and their situation. Just look at your circle of friends.
   + By now, your strategy should be clear: who you want to attract is who you should become yourself.
+
+ + [become-successful-with-women](https://www.lovelifesolved.com/become-successful-with-women#can-you-get-every-woman-you-want)
+  + If you don’t get rejected regularly, you don’t give yourself a chance to succeed.
