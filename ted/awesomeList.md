@@ -16,6 +16,9 @@
 ## d
 + ditch  Why would you ditch that trainer in the first place?
 
+## e
++ enumerate [ɪˈnjuːməreɪt]
+
 ## f
 + flagrant ['fleɪɡrənt] Ref puts some sass in this flagrant foul explanation
 
@@ -53,6 +56,8 @@
 ## sass
 + sass 脏话
 + scour 搜查 We scoured the area for somewhere to pitch our tent.
++ spectacle 美景奇观，精彩的表演
++ spectator 看客，观众  spectate 观战观看
 + spray 喷洒 "Fuck Chinks" was spray painted on a food truck.
 + stingy 吝啬的
 
