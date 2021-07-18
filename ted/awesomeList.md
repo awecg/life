@@ -45,6 +45,7 @@
 
 ## o
 + oblivious [ə'blɪviəs] Refs are oblivious that Paul George is out of bounds.
++ optimal
 + ovation 掌声  gets a standing ovation
 
 ## pathetic
