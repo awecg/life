@@ -8,8 +8,10 @@
 ## c
 + catastrophe [kəˈtæstrəfi]
 + chink 眯眯眼，中国佬
++ cocky
 + consensus 共识 there's a strong consensus with a vocal minority
 + contention 争论；争夺 have been eliminated from championship contention
++ courtship
 + cushion  [ˈkʊʃn] 垫子 His savings were a comfortable cushion against financial problems.
 + cushy job
 
@@ -24,6 +26,9 @@
 
 ## go bonkers
 + go bonkers 疯狂 have gone completely bonkers
+
+## h
++ harem
 
 ## i
 + impersonate 冒充；模仿
@@ -50,6 +55,7 @@
 
 ## pathetic
 + pathetic [pə'θetɪk]  可怜无助的，可悲的
++ pervasive
 + predator [ˈpredətə(r)] 
 + prophet ['prɑfɪt] He's revered as a prophet on XXX
 
@@ -64,3 +70,6 @@
 
 ## v
 + vandalize 故意损坏 food truck was recently vandalized
+
+## w
++ wiener
