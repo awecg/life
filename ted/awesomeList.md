@@ -68,6 +68,9 @@
 + spray 喷洒 "Fuck Chinks" was spray painted on a food truck.
 + stingy 吝啬的
 
+## trunk
++ trunk 主干，树干
+
 ## v
 + vandalize 故意损坏 food truck was recently vandalized
 
