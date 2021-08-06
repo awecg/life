@@ -17,6 +17,7 @@
 
 ## d
 + ditch  Why would you ditch that trainer in the first place?
++ drool drooling mature women
 
 ## e
 + enumerate [ɪˈnjuːməreɪt]
