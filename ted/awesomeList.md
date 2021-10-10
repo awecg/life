@@ -1,3 +1,7 @@
+
+complement 
+
+
 ## a
 + animus ['ænɪməs] 敌意，仇恨
   + unanimous [jʊ'nænɪməs] 意见一致的
@@ -6,14 +10,16 @@
 + bait 诱饵
 
 ## c
+
 + catastrophe [kəˈtæstrəfi]
 + chink 眯眯眼，中国佬
 + cocky
 + consensus 共识 there's a strong consensus with a vocal minority
 + contention 争论；争夺 have been eliminated from championship contention
 + courtship
++ cuddle 拥抱
 + cushion  [ˈkʊʃn] 垫子 His savings were a comfortable cushion against financial problems.
-+ cushy job
++ cushy job 轻松容易的
 
 ## d
 + ditch  Why would you ditch that trainer in the first place?
@@ -26,7 +32,9 @@
 + flagrant ['fleɪɡrənt] Ref puts some sass in this flagrant foul explanation
 
 ## go bonkers
++ glow 发出微弱的光 Such beautiful tits and a glowing smile
 + go bonkers 疯狂 have gone completely bonkers
++ gorgeous 漂亮的，好看的 gorgeous
 
 ## h
 + harem
@@ -49,12 +57,16 @@
 + majority [mə'dʒɔrəti]
 + minority [maɪ'nɔrəti]
 
+## n
++ nuke 用核武器攻击；干掉 nuke procrastination
+
 ## o
 + oblivious [ə'blɪviəs] Refs are oblivious that Paul George is out of bounds.
 + optimal
 + ovation 掌声  gets a standing ovation
 
 ## pathetic
++ palpable His agony is palpable 十分明显，易于觉察
 + pathetic [pə'θetɪk]  可怜无助的，可悲的
 + pervasive
 + predator [ˈpredətə(r)] 
@@ -69,7 +81,8 @@
 + spray 喷洒 "Fuck Chinks" was spray painted on a food truck.
 + stingy 吝啬的
 
-## trunk
+## R
++ recuperate your energy
 + trunk 主干，树干
 
 ## v
