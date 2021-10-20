@@ -8,6 +8,7 @@ complement
 
 ## b
 + bait 诱饵
++ bounty 赏金
 
 ## c
 
@@ -52,6 +53,7 @@ complement
 + layup
 + legit [lɪˈdʒɪt]  合法的
 + legitimate [lɪˈdʒɪtɪmət] 
++ lousy
 
 ## m
 + majority [mə'dʒɔrəti]
