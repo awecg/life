@@ -14,6 +14,7 @@ complement
 
 + catastrophe [kəˈtæstrəfi]
 + chink 眯眯眼，中国佬
++ clarity  each wasted moment degrades your clarity of purpose
 + cocky
 + consensus 共识 there's a strong consensus with a vocal minority
 + contention 争论；争夺 have been eliminated from championship contention
@@ -57,8 +58,13 @@ complement
 + lousy
 
 ## m
++ macho
++ magnify the love you magnify may realign her behavior
 + majority [mə'dʒɔrəti]
++ maximum ['mæksɪməm]
++ masculine 男性的 masculine role
 + minority [maɪ'nɔrəti]
++ minimum ['mɪnɪməm]
 
 ## n
 + nuke 用核武器攻击；干掉 nuke procrastination
@@ -72,6 +78,8 @@ complement
 + palpable His agony is palpable 十分明显，易于觉察
 + pathetic [pə'θetɪk]  可怜无助的，可悲的
 + pervasive
++ postpone
+	+ postponement
 + predator [ˈpredətə(r)] 
 + prophet ['prɑfɪt] He's revered as a prophet on XXX
 
