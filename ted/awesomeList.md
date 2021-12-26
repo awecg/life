@@ -9,6 +9,7 @@ complement
 ## b
 + bait 诱饵
 + bounty 赏金
++ budget monetary plan—— $500 weekly budget
 
 ## c
 
@@ -24,6 +25,9 @@ complement
 + cushy job 轻松容易的
 
 ## d
++ demise 结束；逝去 mourned his demise
++ detonate the rim
++ dire 糟糕的；紧迫的 dire financial situation
 + ditch  Why would you ditch that trainer in the first place?
 + the body discharges pre seminal fluid to douse the acidity in the urethra
 + drool drooling mature women
@@ -67,6 +71,7 @@ complement
 + minimum ['mɪnɪməm]
 
 ## n
++ nostalgia /nɒˈstældʒə/ This nostalgic emotion about the demise of the Staples Center is crazy.
 + nuke 用核武器攻击；干掉 nuke procrastination
 
 ## o
@@ -90,6 +95,7 @@ complement
 + spectacle 美景奇观，精彩的表演
 + spectator 看客，观众  spectate 观战观看
 + spray 喷洒 "Fuck Chinks" was spray painted on a food truck.
++ staple 日用品 make sure your larder is stocked with staples
 + stingy 吝啬的
 
 ## R
