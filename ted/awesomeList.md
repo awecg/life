@@ -1,6 +1,11 @@
 
-complement 
-
+complement tout  fellatio desecrate brownish tint blacklash introverted
+you’re the kind of guy who is introverted and keeps to himself
+If you’re blindsided by a test
+slouch
+obsequiously submissive : TRUCKLING subservient
+conceive
+analogy [ə'nælədʒi]
 
 ## a
 + animus ['ænɪməs] 敌意，仇恨
@@ -33,6 +38,7 @@ complement
 + drool drooling mature women
 
 ## e
++ ejaculate  eject semen
 + enumerate [ɪˈnjuːməreɪt]
 
 ## f
@@ -76,6 +82,7 @@ complement
 
 ## o
 + oblivious [ə'blɪviəs] Refs are oblivious that Paul George is out of bounds.
++ obscure obscure references and baffling digressions
 + optimal
 + ovation 掌声  gets a standing ovation
 
@@ -83,6 +90,7 @@ complement
 + palpable His agony is palpable 十分明显，易于觉察
 + pathetic [pə'θetɪk]  可怜无助的，可悲的
 + pervasive
++ platonic
 + postpone
 	+ postponement
 + predator [ˈpredətə(r)] 
@@ -99,6 +107,7 @@ complement
 + stingy 吝啬的
 
 ## R
++ retaliate
 + recuperate your energy
 + trunk 主干，树干
 
