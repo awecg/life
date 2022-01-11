@@ -6,6 +6,15 @@ slouch
 obsequiously submissive : TRUCKLING subservient
 conceive
 analogy [ə'nælədʒi]
+audience [ˈɔdiəns]
+niche [nɪtʃ] 市场定位
+hygiene [ˈhaɪdʒin]
+agenda
+The best kind of flirtation with a woman is to tease her, to bust her balls, to let her know that she is not on a pedestal [ˈpedɪst(ə)l]
+pimple rash
+spontaneously [spɔnˈtenɪəslɪ]
+deteriorate [dɪˈtɪriəreɪt]
+stunning 
 
 ## a
 + animus ['ænɪməs] 敌意，仇恨

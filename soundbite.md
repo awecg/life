@@ -9,3 +9,6 @@
 
  + [become-successful-with-women](https://www.lovelifesolved.com/become-successful-with-women#can-you-get-every-woman-you-want)
   + If you don’t get rejected regularly, you don’t give yourself a chance to succeed.
+  + people gravitate towards similarity
+  + The correct mindset: “She seems cool. I want to find out more about her and see if we are a good fit for each other.” 
+  + Confidence is situational and heavily influenced by competence.If you want to become confident in an area all you need to do is gather experience and raise your skill. 
