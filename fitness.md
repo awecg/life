@@ -6,6 +6,8 @@
 	+ 晚上回家整理屋子25分钟；
 	+ 八点多很困时，闭着眼睛朗读吧；
 	+ 九点半休息，别太早了
++ cold showering/bathing
+  + hot-to-cold 从热到冷进行切换
 
 
 ## Jeff视频总结
